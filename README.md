@@ -1,2 +1,0 @@
-# Vaxxo
-Roblox Cheat
